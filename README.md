@@ -5,9 +5,9 @@
 - How to reach me: SimplyWafflezz@gmail.com.
 
 Follow me on Twitch:
-twitch.tv/SimplyWafflezz
+https://www.twitch.tv/simplywafflezz
 
 Subscribe to me on YouTube:
 https://m.youtube.com/channel/UC6X8jipexrAWZV7WjYRj_TQ
 
-*If YouTube links doesn't work then search "SimplyWafflezz" and look for the Silly Waffle emoji picture.*
+*If YouTube and Twitch links don't work then search "SimplyWafflezz" and look for the Silly Waffle emoji picture.*
